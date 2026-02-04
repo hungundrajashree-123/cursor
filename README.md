@@ -12,3 +12,6 @@ https://cdn.brandfetch.io/idg33VVWFZ/theme/light/idq99hB3sB.svg?c=1bxid64Mup7acz
 ![Screenshot_4-2-2026_152725_cursor com](https://github.com/user-attachments/assets/2628ec77-4e66-4862-8098-99b65878d621)
 ![Screenshot_4-2-2026_153435_cursor com](https://github.com/user-attachments/assets/4dd68d00-52e2-4887-a7ad-ee9e72b0ea6b)
 ![Screenshot_4-2-2026_154820_cursor com](https://github.com/user-attachments/assets/e663b940-87a8-42bb-940a-f935a68ef86c)
+![Screenshot_4-2-2026_163023_cursor com](https://github.com/user-attachments/assets/a9c4242d-0300-4090-9ba6-cb6643c9765b)
+![Screenshot_4-2-2026_16337_cursor com](https://github.com/user-attachments/assets/2c62b08d-304b-4b6f-853f-9ab93bd7d853)
+![Screenshot_4-2-2026_163331_cursor com](https://github.com/user-attachments/assets/6d95090c-c1b2-4d75-9fdb-2f2e4f9c32af)
