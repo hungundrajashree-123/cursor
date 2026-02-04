@@ -7,3 +7,5 @@ https://cdn.brandfetch.io/idZHcZ_i7F/theme/light/logo.svg?c=1bxid64Mup7aczewSAYM
 https://cdn.brandfetch.io/idR3duQxYl/theme/light/logo.svg?c=1bxid64Mup7aczewSAYMX&t=1741166761598
 https://cdn.brandfetch.io/idg33VVWFZ/theme/light/idq99hB3sB.svg?c=1bxid64Mup7aczewSAYMX&t=1761201141809
 ![Screenshot_4-2-2026_12713_cursor com](https://github.com/user-attachments/assets/4840b974-0168-4489-ad5b-73c1dfa90a9c)
+
+![Screenshot_4-2-2026_13536_cursor com](https://github.com/user-attachments/assets/891a8a30-2c15-44d2-a3f0-493ceae8ffd8)
